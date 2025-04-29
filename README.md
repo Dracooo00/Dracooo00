@@ -27,7 +27,7 @@ Algumas das minhas principais qualidades incluem:
 
 Se você deseja conversar mais sobre tecnologia, projetos ou apenas trocar ideias, estou à disposição! Você pode me encontrar também nas redes sociais:
 
-- **Instagram**: [@seuinstagram](https://www.instagram.com/seuinstagram)  
+- **Instagram**: [@Drac0.kkz](https://www.instagram.com/Drac0.kkz)  
 - **Telefone**: +55 16 99286-0701
 
 ## O que estou buscando
