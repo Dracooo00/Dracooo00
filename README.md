@@ -23,6 +23,13 @@ Algumas das minhas principais qualidades incluem:
 - **Educado**: Valorizo o respeito e a educação em todas as minhas interações, criando um ambiente positivo e colaborativo.
 - **Comunicativo**: Acredito que uma boa comunicação é essencial, seja para resolver problemas ou compartilhar ideias, e sempre me esforço para ser claro e acessível nas minhas conversas.
 
+## Como me encontrar
+
+Se você deseja conversar mais sobre tecnologia, projetos ou apenas trocar ideias, estou à disposição! Você pode me encontrar também nas redes sociais:
+
+- **Instagram**: [@seuinstagram](https://www.instagram.com/seuinstagram)  
+- **Telefone**: +55 16 99286-0701
+
 ## O que estou buscando
 
 Estou em busca de oportunidades para aprimorar meus conhecimentos e adquirir mais experiência prática na área de desenvolvimento de sistemas. Se você tem um projeto interessante ou quer trocar ideias sobre tecnologia, ficarei muito feliz em conectar!
